@@ -8,6 +8,8 @@
 - 💬 Ask me about **React,Next,Node.js**
 
 - 📫 How to reach me **fasalbaig255@gmail.com**
+-  ⚡ Fun fact **Baigan🍆**
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
